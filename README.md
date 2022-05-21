@@ -1,0 +1,2 @@
+- Hi, I’m QMedyK
+- I love games
